@@ -57,7 +57,6 @@
 - 💬 Communicative
 - 🤝 Team Worker
 
-## Others
 
 ### Work Experience
 
